@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shivangigrover07
-- 👀 I’m interested in Gaining experience 
+- 👀 I’m interested in learning new technologies
 - 🌱 I’m currently learning to adapt in tech world as a newbie
 - 💞️ I’m looking to collaborate on upcoming projects
 - 📫 How to reach me :- Through my social media
